@@ -1,2 +1,6 @@
-# DS2022
-Demo Repo. 
+Welcome to fund world of merging :) 
+Don't despair
+===================================
+It will be fun, I promise. 
+===================================
+Keep going don't give up.  
