@@ -1,5 +1,7 @@
-# Aimee Salazar Luna
+# Alex Elias
 
-- Hobbies: hanging with friends, reading, exploring places, boba runs 
-- Spyname: Luna
-- About me (Fake): I'm 21 and live in Utah 
+
+- Hobbies: Cooking and Eating 
+- Spyname: KyleV3
+- About me: I hang out with Kyle every day
+
