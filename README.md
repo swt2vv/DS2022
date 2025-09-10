@@ -1,6 +1,6 @@
-AAAAAAAAAAAAAAAAAAAAAA
-BBBBBBBBBBBBBBBBBBBBBB
+Welcome to fun world of merging :) 
+Don't despair
 ===================================
-CCCCCCCCCCCCCCCCCCCCCC
+It will be fun, I promise. 
 ===================================
-DDDDDDDDDDDDDDDDDDDDD
+Keep going don't give up.  
